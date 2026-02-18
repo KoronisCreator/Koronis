@@ -1,7 +1,7 @@
 
---[[       
+--[[
 
-nice one buddy your not slick
+whats up skid
 
 ]]--
 
