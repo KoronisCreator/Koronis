@@ -1,7 +1,7 @@
 
 --[[
 
-whats up skid
+nice one skid
 
 ]]--
 
